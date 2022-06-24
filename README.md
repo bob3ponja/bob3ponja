@@ -2,4 +2,4 @@
 - 🤔 Estou procurando ajuda em cripto moedas
 - ⚡ Curiosidade: gosto de futebol e tenho 14 anos
 -  :snowflake:fica frio ai
--  :muscle:kaue bombado
+-  :muscle:kaue bombado 🥇
